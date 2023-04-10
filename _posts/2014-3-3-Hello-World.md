@@ -19,7 +19,7 @@ When you're an underrated athlete, you might not get as many opportunities to sh
 
 ## 4. Build your brand
 In today's digital age, athletes have more opportunities than ever before to build their personal brand. Use social media to your advantage and share highlights of your best plays or training sessions. Connect with other athletes in your sport or in related fields and build relationships that can help you grow your network.
-
+![]({{site.baseurl}}/https://cdn.discordapp.com/attachments/1085335805104509070/1094862921886076958/Birb_an_underrated_basketball_player_working_hard_in_the_gym_on_58c88b2e-8926-480b-9e28-607e7164b3e1.png)
 ## 5. Stay humble
 Finally, it's important to stay humble and grounded as you work to make a name for yourself. Being underrated can be frustrating, but it's important not to let it go to your head. Stay focused on your goals and keep working hard, and the recognition will come in time.
 
